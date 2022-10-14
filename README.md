@@ -1,3 +1,3 @@
 I’m @GrandNewbien across the web.
 
-Founder @ AutomationToronto.com and Co-founder @ FactionFinancial.com
+Founder @ [Automation Toronto](https://automationtoronto.com) and Co-founder @ [Faction Financial](https://factionfinancial.com)
