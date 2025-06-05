@@ -2,4 +2,4 @@
 
 Founder @ [Automation Toronto](https://automationtoronto.com) 
 
-Co-founder @ [Faction Financial](https://factionfinancial.com)
+
